@@ -5,3 +5,4 @@
 - 💔 fuck everyone (single :p)
 - 📫 How to reach me: you can dm me or find me on pt
 - ⚡ Fun fact: Im in for voice acting in space adventures and a md season two type show
+
