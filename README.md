@@ -1,1 +1,1 @@
-Dear diary, i still beleive theres good in everyone. Even the worst of us, and thats smth im willing to die for.
+Dear diary, i still beleive theres good in everyone. Even the worst of us, and thats smth im willing to die for. ![alt tag](https://files.catbox.moe/0202g7.gif)
