@@ -1,5 +1,4 @@
 **"When Bianca's life turns out not to be what it seems, every choice carries a consequence you can't escape."**
 
 ![](https://files.catbox.moe/l5shaq.jpg)
-
-<div align="center"> ![strawpage](https://iamserialdesignationj.straw.page/) ![directory](https://rentry.co/Equalitytown)
+<div align="center">![strawpage](https://iamserialdesignationj.straw.page/) ![directory](https://rentry.co/Equalitytown)
