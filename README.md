@@ -2,4 +2,4 @@
 
 ![](https://files.catbox.moe/l5shaq.jpg)
 
-[strawpage](https://iamserialdesignationj.straw.page/)     [directory](https://rentry.co/Equalitytown)
+<div align="center">[strawpage](https://iamserialdesignationj.straw.page/)     [directory](https://rentry.co/Equalitytown)
